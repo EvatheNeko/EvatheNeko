@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @EvatheNeko
+@EvatheNeko
   #include <stdio.h>
   #include <string.h>
 int main() {
