@@ -33,8 +33,7 @@ contacts: evalyn_.
 
 contact info: on Discord
 
-
-
+tumoltuous period with a girlfriend of 3 years... I love them oh... so so much... I just wish we could be happy together.. I want to hold them... 
 
 
 
