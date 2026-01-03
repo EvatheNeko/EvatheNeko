@@ -35,6 +35,9 @@ contact info: on Discord
 
 
 If you read this Ellias... just know that... you are... amazing. 
+
+it might seem immature to hide this in such a way, but I feel it's justified for something which I am thinking of, and am currently waiting 2 weeks on to be able to actually prove myself with. 
+
 If you read this, please believe me when I say that I can give you what you needed for so long. That I am not the same as I was before, I am more mature. I am still clingy, and somewhat desperate, that I have to be honest about.
 What I know is that I can do this. I am enough for you. I can give you what you pleaded for so long. 
 I am able to do it. just let me do it. let me try for you. let us try. a relationship is a give and take... let me give. I know I can do it.
