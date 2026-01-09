@@ -34,32 +34,16 @@ contacts: evalyn_.
 contact info: on Discord
 
 
-If you read this Ellias... just know that... you are... amazing. 
+Ellias. If you read this... I love you. I love you I love you I love you, my self control.. is DWINDLING. its... i... i am trying so hard to not harrass you or contact but oh my god its tearing me apart. You said i was just obsessed, Ellias, we are both obsessed. dont you know? you've said it so many times. all I want is for us to work, this is pathetic, this is desperate, because i am at my limit. I am.. crying i am sobbing and all i want is for us to be able to work. because you really do mean the world to me. im afraid of whatll become of me, i really really am, this isnt me trying to be dramatic, this isnt me trying to convince you this isnt me trying to do anything but explain how i feel, the pain in me grows every day, and the way i react gets worse and worse, more immature and more panicked and im afraid, Ellias, please. please please please plesae im so... im so.. im deseperate im pathetic, i am. ill admit it, but holy hell i am NOT doing okay, and i need help, please. I.. dont knwo what ill be like when i calm down or how ill feel but right now as i am typing this as a way to try and quell myself, i am falling apart. genuinly i am... i.. i... please. Ellias. I want you back, i want you back, i can treat you better, the proof is that i can point out my own behavior and how it was toxic and neglectful, i am better than i was you just need to believe me please please please please plesae please i cant do this right now i cant do it i cant do it i cant do it please please i cant takeiticantdoitwhywhywhyhwqyhwjulgfb;;; 
 
-it might seem immature to hide this in such a way, but I feel it's justified for something which I am thinking of, and am currently waiting 2 weeks on to be able to actually prove myself with. 
+i am falling apart. i am falling apart. 
+i am falling apart.
+i am breaking
+it hurts.
+i cant even tell how i feel really.
+i hate my own actions and i hate how i act. but i cant help it when im this desperate. wwhy.. how.. this. i.. ;;
 
-If you read this, please believe me when I say that I can give you what you needed for so long. That I am not the same as I was before, I am more mature. I am still clingy, and somewhat desperate, that I have to be honest about.
-What I know is that I can do this. I am enough for you. I can give you what you pleaded for so long. 
-I am able to do it. just let me do it. let me try for you. let us try. a relationship is a give and take... let me give. I know I can do it.
-I've realized things. I've realized a lot. just let me do it. give me a chance to be enough, I know you said it's too late. but I am here now. 
-I am here now, for you, and I can do it. let me prove it. give me 2 weeks. give me 2 weeks and I will prove to you that I can do this. for both of us. 
-that I can be able to suppport you, give you the love you deserve, the affection you deserve, the attention you deserve, and have deserved for so, so so so long
-You said it's too late.
-It's not too late, it's never too late. I am here now. Let me prove it. thats all i beg. just let me prove through actions that I can do this. for you. 
-for no one else, but you. stop being pessimistic. i am here now. just believe me. thats all I want. trust me, trust me one more time that I can do this. 
-I can do this. you just have to let me. 
-I'm not trying to be manipulative. I just want to tell you how I feel, what I think i can do. I am... very sure in how I feel. 
-Just let me have 1 more chance, and I will be better. I wont be toxic, not like I was before, not like I was for the last 3 and a half years. I have grown as a person. I am... sure. 
-all you have to do... is trust me. just this once. trust me one more time, trust me in how I can do this. trust me. please. 
-Just. internalize it, if you ever read this. just. trust. me.
-I want to put in the effort that you did for so long. I want to support you, like I should have been for 3 years, how I should've loved you more, for 3 years. I can do it.
-I am not the same toxic idiot i was before. i am angry at myself, and I am speaking from my heart here. Im not revising this at all. just. believe me. please. 
-give me 2 weeks and i will prove through actions that i can work like a fucntional human being. that we are in the same stage of life, that i can make a miracle happen. 
-I promise. I will never ever neglect you again. never hurt you. I still need work with how I deal with some things, But if you just let me have 2 weeks, from 1/2/2026...
-Let me prove to you that I am enough for you. all you have to do... is trust me. 
-
-
-
+i dont know i dont have words anymore. i dont have words to use anymore im so far... panicked and desperate AND PATHETIC
 
 <!---
 EvatheNeko/EvatheNeko is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
